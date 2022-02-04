@@ -1,1 +1,1 @@
-# Coptic-Orthodox-Church-Interior-Design
+# Coptic-Orthodox-Church-Architectural-Design
